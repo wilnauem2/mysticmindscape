@@ -16,7 +16,7 @@ In this sanctuary of healing and enlightenment, you are invited to listen to the
 
 May you find solace here, and may our connection ignite a profound transformation within you. Reach out when you are ready to take this remarkable journey together.
 
-## What you can expect when embarcing on this journey:
+## What you can expect when you embark on this journey:
 
 I envision my role as a compassionate guide along the path from 3D to 5D, hand in hand with my clients. Through heartfelt conversations, I listen deeply to where you are on your journey. Together, we embark on a transformative process, addressing blockages with the support of my spirit team. My mission is to empower and equip you with the necessary tools and wisdom, so you can take the reins of your journey.
 

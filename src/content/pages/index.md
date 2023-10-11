@@ -5,8 +5,9 @@ title: Mysticmindscape
 tagline: Marc - Spiritual Teacher
 featuredImage: /assets/toa-heftiba-0rlfirsdvzu-unsplash.jpg
 cta:
-  ctaText: Know more
+  ctaText: I'm ready for the journey
   ctaLink: /about
 ---
 
-He is a award winning gaming graphic designer, based in sunny side of California. Working as Principal designer at Bethesda
+
+Step into a sacred space of transformation and awakening guided by ancient wisdom and a lineage of ascended masters. I'm here to serve you on your quest to elevate your vibrations and rediscover life's enchantment. Feel the gentle tug of your soul leading you towards understanding. Reach out when you're ready for this remarkable journey.

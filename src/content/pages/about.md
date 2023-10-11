@@ -24,4 +24,36 @@ Our online meetings, priced at 88.88 Euros, serve as moments of enlightenment an
 
 Allow me to be your steadfast navigator, a cheerleader on your remarkable journey. Your transformation is my deepest wish, and I am here to support your evolution from the heart.
 
+## Topics that I can help you with:
+
+**Emotional Healing:** Healing from past traumas, emotional wounds, addictions and unresolved issues that are holding you back.
+
+**Self-Limiting Beliefs:** Identifying and transforming limiting beliefs that hinder you personal growth and success.
+
+**Relationship Challenges:** Navigating difficult relationships, finding love, or enhancing existing partnerships.
+
+**Life Purpose:** Discovering your true life purpose and aligning their actions with it.
+
+**Stress and Anxiety:** Managing and reducing stress and anxiety through mindfulness and coping techniques.
+
+**Spiritual Connection:** Deepening their spiritual connection and understanding.
+
+**Inner Peace:** Finding inner peace and balance in the midst of life's chaos.
+
+**Manifesting Desires:** Learning to manifest desires and create the life you truly want.
+
+**Health and Well-being:** Improving physical and mental health, including holistic wellness approaches.
+
+**Financial Abundance:** Overcoming financial blocks and achieving financial abundance.
+
+**Personal Growth:** Fostering personal growth and self-improvement.
+
+**Career Fulfillment:** Enhancing job satisfaction or transitioning to a more fulfilling career.
+
+**Creativity and Inspiration:** Reigniting creativity and inspiration in your live.
+
+**Time Management:** Improving time management and productivity.
+
+**Finding Clarity:** Gaining clarity about goals, values, and life direction.
+
 

@@ -8,7 +8,7 @@ Welcome to a sacred space where profound transformation and spiritual awakening 
 
 Here, we embark on a transformative journey guided by ancient wisdom, a lineage of ascended masters that flows through my being. Life has woven a tapestry of experiences, both challenging and beautiful, into the fabric of my existence. Through these trials, a profound empathy for your own journey has blossomed within me.
 
-![Toys](/assets/rainbow-spiritual-healer.jpg)
+![](/assets/rainbow-spiritual-healer.jpg)
 
 As a humble guardian of the spiritual realms, I humbly step into the role of a mystic teacher. My purpose transcends the confines of the self, as I am here to serve you in your quest to elevate your vibrations and rediscover the enchantment that surrounds us all.
 

@@ -3,7 +3,7 @@ template: index-page
 slug: /
 title: Mysticmindscape
 tagline: Marc - Spiritual Teacher
-featuredImage: /assets/toa-heftiba-0rlfirsdvzu-unsplash.jpg
+featuredImage: /assets/marc.jpg
 cta:
   ctaText: I'm ready for the journey
   ctaLink: /about

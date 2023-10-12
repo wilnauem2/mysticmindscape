@@ -1,7 +1,7 @@
 ---
 template: blog-post
-title: Extreme gaming extravaganza
-slug: /gaming-extravaganza
+title: Gratitude - the Cozy Blanket
+slug: /Gratitude-Cozy-Blanket-Lifes-Sofa
 date: 2020-05-13 12:55
 description: Why Gratitude Is the Cozy Blanket on Life's Sofa
 featuredImage: /assets/gratitude.jpg

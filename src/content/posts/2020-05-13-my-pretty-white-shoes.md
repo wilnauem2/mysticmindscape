@@ -39,7 +39,7 @@ Reflect on Your Blooper Reel: We all have those "facepalm" moments in life. Inst
 
 Be a Random Act of Kindness Stand-up Comedian: Surprise someone with an unexpected act of kindness. Whether it's a funny little gift or a heartfelt compliment, being a random act of kindness stand-up comedian can leave a trail of laughter and joy wherever you go.
 
-Why Gratitude Is the Key: The Cozy Blanket on Life's Sofa
+## Why Gratitude Is the Key: The Cozy Blanket on Life's Sofa
 
 In a world where the race for "more" often feels like a never-ending marathon, gratitude is your cozy blanket on life's sofa. It's the secret ingredient that makes life feel like a heartwarming, laugh-out-loud sitcom. Gratitude shifts your focus from scarcity to abundance, turning the spotlight on the richness of your life. It encourages mindfulness, resilience, and deeper connections, creating a feel-good atmosphere that's better than a sitcom marathon.
 
@@ -47,7 +47,7 @@ Gratitude is the comedy life jacket that keeps you afloat when life throws plot 
 
 So, grab your gratitude journal, put on your smile, and get ready for the comedy show of your life. With gratitude as your co-star, your story will be filled with more color, warmth, and laughter than you ever imagined. It's time to embrace gratitude and watch as your life becomes a heartwarming, funny, and colorful masterpiece.
 
-Thanks to pexels.com / George Dolgikh for the nice picture!
+Thanks to pexels.com / George Dolgikh for the beautiful image!
 
 
 

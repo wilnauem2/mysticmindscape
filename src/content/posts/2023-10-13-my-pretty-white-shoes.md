@@ -2,7 +2,7 @@
 template: blog-post
 title: Gratitude - the Cozy Blanket
 slug: /Gratitude-Cozy-Blanket-Lifes-Sofa
-date: 2020-05-13 12:55
+date: 2023-10-13 12:55
 description: Why Gratitude Is the Cozy Blanket on Life's Sofa
 featuredImage: /assets/gratitude.jpg
 ---

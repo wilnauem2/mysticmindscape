@@ -2,7 +2,7 @@
 template: blog-post
 title: Every Addiction holds a Gift
 slug: /every-addiction-holds-a-gift
-date: 2020-05-14 12:55
+date: 2023-10-14 12:55
 description: Every Addiction holds a Gift
 featuredImage: /assets/gift.jpg
 ---

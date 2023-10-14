@@ -4,7 +4,7 @@ title: Every Addiction holds a Gift
 slug: /every-addiction-holds-a-gift
 date: 2020-05-14 12:55
 description: Every Addiction holds a Gift
-featuredImage: /assets/gratitude.jpg
+featuredImage: /assets/gift.jpg
 ---
 
 # The Path to Ascension: Embracing Healing for a Life of Ease

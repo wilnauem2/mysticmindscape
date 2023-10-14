@@ -57,3 +57,11 @@ Allow me to be your steadfast navigator, a cheerleader on your remarkable journe
 **Finding Clarity:** Gaining clarity about goals, values, and life direction.
 
 
+# How I work with you and what I cn provide
+
+My journey of understanding has taken me through a blend of ancient wisdom and contemporary insights, influenced by various sources like YouTube, audiobooks, and direct experiences, such as my time exploring shamanism in Portugal. I humbly stand at the intersection of spiritual exploration, seeking to share knowledge that harmonizes time-honored traditions with the modern digital era.
+
+My spiritual path is one of continuous learning, where I've gathered a spectrum of practical spiritual techniques over lifetimes. Through these video meetings, my aim is to help you uncover your unique needs, whether it involves healing from trauma, transcending addictions, letting go of outdated beliefs, or elevating your vibration for a more luminous life journey.
+
+During our sessions, we can approach your challenges with both analytical discussion and the guidance of diverse resources, such as books and enlightening YouTube videos. Alternatively, we can embark on practical exercises that align with your inner resonance. The approach we choose is always intuitive, crafted to best serve your spiritual growth.
+

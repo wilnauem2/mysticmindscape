@@ -57,7 +57,7 @@ Allow me to be your steadfast navigator, a cheerleader on your remarkable journe
 **Finding Clarity:** Gaining clarity about goals, values, and life direction.
 
 
-# How I work with you and what I cn provide
+# How I work with you and what I can provide
 
 My journey of understanding has taken me through a blend of ancient wisdom and contemporary insights, influenced by various sources like YouTube, audiobooks, and direct experiences, such as my time exploring shamanism in Portugal. I humbly stand at the intersection of spiritual exploration, seeking to share knowledge that harmonizes time-honored traditions with the modern digital era.
 

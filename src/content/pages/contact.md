@@ -4,6 +4,4 @@ slug: /contact
 title: Get in touch
 ---
 
-Got a burning question regarding **JAMstack**, Need a new **Website**, or just anything in general. We are happy to talk.
-
-Just send us a message using the form below or you can send us a DM on [Twitter](https://twitter.com/stackrole)
+Experience the power of rapid transformational healing in a 55-minute session designed to uplift your life and spirit. For an energy exchange of 88.88 Euros, you can embark on a journey of profound change. While providing your birthdate is beneficial, it's not obligatory. Your request will be met with a response within 2 days, and an appointment offer is highly likely. Feel free to include your telephone number for smoother communication, but it's entirely optional. Your path to transformation begins with a single step - reach out today, and let's embark on this incredible journey together.

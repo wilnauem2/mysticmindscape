@@ -86,7 +86,7 @@ const HomePage = ({ data }) => {
         ) : (
           ""
         )}
-        {icons.icon === "twitter" ? (
+        {/* {icons.icon === "twitter" ? (
           <a href={icons.url} target="_blank" aria-label="link to Twitter" rel="noopener noreferrer">
             <RiTwitterFill alt="Twitter icon"/>
           </a>
@@ -197,7 +197,7 @@ const HomePage = ({ data }) => {
           </a>
         ) : (
           ""
-        )}
+        )} */}
       </div>
     )
   })
